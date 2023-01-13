@@ -6,6 +6,8 @@
 
 ---
 
+[Registration open](https://eventos.uva.es/92504/detail/artificial-intelligence-and-ecosystems-management.html) (click on the "Inscribirse" box at the right of the title).
+
 More information [here](https://eventos.uva.es/92504/detail/artificial-intelligence-and-ecosystems-management.html).
 
 ---
